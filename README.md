@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports, development and music
 - 🌱 I’m currently learning to develop systems
 - 💞️ I’m looking to collaborate with the world
-- 📫 How to reach me: email: vitorvieira2303@outlook.com or through my intragram
+- 📫 How to reach me: email: vitorvieira2303@outlook.com or through my intragram: vieira.only
 - 😄 Pronouns: He/Him
 
 <!---
